@@ -1,27 +1,35 @@
 # GUIA NOFAP
-Esse guia foi criado com base em experiência pessoal e conhecimento obtido, sua utilidade é orientar e ajudar quem precisa em relação ao nofap, todo tempo dedicado em sua criação foi pensado em dar assistência a quem está com dificuldade
+Esse guia foi criado com base em experiências públicas e conhecimento obtido ou compartilhado, sua utilidade é orientar e ajudar quem precisa em relação ao nofap, todo tempo dedicado em sua criação foi pensado em dar assistência a quem está com dificuldade.
 
 🕘 Tempo: 365 dias
 
-Protocolo de guerra
+Níveis de dificuldade:
 
-## Nível: easy mode
+## Nível: easy mode (Modo fácil)
 
-❌ Pornô
+❌ Pornografia
 
-❌ Masturbação
+❌ Masturbação com ejaculação
+
+✅ Sexo sem orgasmo
+
+✅ Peaking
 
 
-## Nível: hard mode
+## Nível: hard mode (Modo difícil)
 
 ❌ Pornografia em geral
 
-❌ Masturbação
+❌ Masturbação com ejaculação
 
 ❌ Orgasmo
 
+❌ Sexo
 
-### Hierarquia
+❌ Peaking
+
+
+### Ranking
 
 (+365 dias) - Monge ♾️
 
@@ -54,7 +62,7 @@ Protocolo de guerra
 (0-4 dias) - Soldado 🎽
 
 
-### Possíveis chances
+### Possíveis chances de Ranking
 
 (0,5%) - Monge ♾️
 
@@ -213,7 +221,7 @@ O vício afeta a mente de forma muito intensa e pode ser muito prejudicial, caus
 
 Sexo: é permitido no easy mode desde que seja algo natural sem a inclusão de pornografia durante ele, porém no hard mode não se deve ter nenhum tipo de orgasmo;
 
-Edging: seria estimular-se continualmente só que sem ejacular, no easy mode só perderia se acabasse ejaculando, já no hard mode é proibida está prática;
+Edging: seria estimular-se continualmente só que sem ejacular, no easy mode só perderia se acabasse ejaculando, já no hard mode é proibida esta prática;
 
 Peaking: seria pesquisar fotos e imagens sensuais nas redes sociais ou na internet mas que não sejam totalmente pornográficas e explícitas, no easy mode não teria problema caso o conteúdo não fosse totalmente pornográfico, porém no hard mode conta como uma forma de recaída.
 
